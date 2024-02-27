@@ -18,6 +18,6 @@ Here are some ideas to get you started:
 
 ## Contato
 
-- **E-mail:** [Seu E-mail]
+- **E-mail:** [gustavotadeu13]
 - **Twitter:** [Seu Perfil no Twitter]
 
